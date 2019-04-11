@@ -1,1 +1,1 @@
-# chlo-_exo_newsletter
+# chloe_exo_newsletter
